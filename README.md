@@ -19,3 +19,4 @@
 ![kilua indo e gostoso](https://nerdhits.com.br/wp-content/uploads/2021/05/killua.jpg)
 
 ``` cachorro rosa ```
+``` somos depressivos ```
